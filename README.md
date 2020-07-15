@@ -7,6 +7,16 @@ I’m self-motivated, highly adaptable, intellectual, technology enthusiast, pro
 I’m a “jugaadu” kind of person. So if you gave me a challenge and time duration to find out the solution to it. And if I don’t know anything about it, then I just want one machine and full access to the internet. I’ll do research, learn, and develop the solution for that challenge within the given time frame.
 
 I’m also interested in entrepreneurship, critical reading, listening to music, traveling, trekking, hiking, street, and landscape photography.
+
+### __Links__
+[abhishekkatyare.xyz](https://www.abhishekkatyare.xyz/) • 
+[About.Me](https://about.me/abhishekkatyare) • 
+[LinkedIn](http://www.linkedin.com/in/abhishekkatyare) • 
+[GitHub](https://github.com/abhishekkatyare) • 
+[Twitter](https://twitter.com/AbhishekKatyare) • 
+[Medium](https://medium.com/@abhishekkatyare) • 
+[DEV](https://dev.to/abhishekkatyare) 
+
 <!--
 **abhishekkatyare/abhishekkatyare** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
