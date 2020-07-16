@@ -10,7 +10,8 @@ I’m also interested in entrepreneurship, critical reading, listening to music,
 
 ### __Links__
 [abhishekkatyare.xyz](https://www.abhishekkatyare.xyz/) • 
-[About.Me](https://about.me/abhishekkatyare) • 
+[About.Me](https://abhishekkatyare.github.io/) • 
+[Resume](https://abhishekkatyare.github.io/resume) •
 [LinkedIn](http://www.linkedin.com/in/abhishekkatyare) • 
 [GitHub](https://github.com/abhishekkatyare) • 
 [Twitter](https://twitter.com/AbhishekKatyare) • 
