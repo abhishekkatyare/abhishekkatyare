@@ -14,7 +14,9 @@ I’m also interested in entrepreneurship, critical reading, listening to music,
 [LinkedIn](http://www.linkedin.com/in/abhishekkatyare) • 
 [GitHub](https://github.com/abhishekkatyare) • 
 [Twitter](https://twitter.com/AbhishekKatyare) • 
-[Medium](https://medium.com/@abhishekkatyare) • 
+[Instagram](https://www.instagram.com//abhishekkatyare) •
+[Medium](https://medium.com/@abhishekkatyare) •
+[Telegram](https://t.me/abhishekkatyare) • 
 [DEV](https://dev.to/abhishekkatyare) 
 
 <!--
