@@ -10,7 +10,7 @@ I'm not only a coder but also an entrepreneur at heart. I have worked on several
 
 I'm also a "jugaadu" kind of person. Jugaad is a Hindi word that means finding a low-cost and quick solution to a problem using whatever resources are available. It's a mindset of being resourceful, creative, and adaptable. So if you give me a challenge and a time limit to find a solution for it, and if I don't know anything about it, then I just need one machine and full access to the internet. I'll do research, learn, and develop the solution for that challenge within the given time frame.
 
-Apart from technology and entrepreneurship, I also have other interests and hobbies. I like to read books on various topics such as psychology, philosophy, history, geography, science fiction, spirituality etc. I like to listen to music of different genres such as indian classical, old hindi and marathi songs etc. I like to travel to new places and experience different cultures and cuisines. I like to trek and hike in nature and enjoy the scenic views. I like to go on solo bike ride. I like to take photos of street scenes and landscapes with my camera or phone.
+Apart from technology and entrepreneurship, I also have other interests and hobbies. I like to read books on various topics such as psychology, philosophy, history, geography, science fiction, spirituality, etc. I like to listen to music of different genres such as Indian classical, old Hindi and Marathi songs, etc. I like to travel to new places and experience different cultures and cuisines. I like to trek and hike in nature and enjoy scenic views. I like to go on solo bike rides. I like to take photos of street scenes and landscapes with my Ricoh GRIII or iPhone.
 
 That's all about me for now. Thank you!😊
 
