@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Hello, everyone. My name is Abhishek Katyare and I'm an engineer from Nashik, India. I'm here to share with you some of my experiences and insights as a digital professional who loves to develop digital systems and write software to make the world more digital.
+My name is Abhishek Katyare and I'm an engineer from Nashik, India. I'm here to share with you some of my experiences and insights as a digital professional who loves to develop digital systems and write software to make the world more digital.
 
 I have been coding since I was in college, where I studied computer science and engineering at Savitribai Phule Pune University. I have learned many programming languages and technologies on my own, through online courses, books, blogs, and podcasts. I'm always curious and eager to learn new things and explore new possibilities.
 
