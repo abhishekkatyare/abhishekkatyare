@@ -15,7 +15,7 @@ Apart from technology and entrepreneurship, I also have other interests and hobb
 That's all about me for now. Thank you!😊
 
 ### __Links__
-[abhishekkatyare.xyz](https://www.abhishekkatyare.xyz/) • 
+[abhishek.katyare.com](https://abhishek.katyare.com/) • 
 [About.Me](https://abhishekkatyare.github.io/) • 
 [Resume](https://abhishekkatyare.github.io/resume) •
 [LinkedIn](http://www.linkedin.com/in/abhishekkatyare) • 
